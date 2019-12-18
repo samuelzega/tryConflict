@@ -1,4 +1,2 @@
 # tryConflict
-
-
-mamam tuh conflict
+apa nih coyyyy
